@@ -7,7 +7,7 @@
   <p>In this guide, we’ll show you how to claim up to <strong>11,000 USDT</strong> in rewards, save with a <strong>50% trading fee discount</strong>, and get the most out of your <strong>BTCC invite code</strong>—including the best one to use: <strong>BTCCBONUS</strong>.</p>
 <p><a href="https://partner.btcc.com/us/c/BTCCBONUS/9303" target="_blank">Sign up and receive offers here</a></p>
 
-<img src="https://images.mirror-media.xyz/publication-images/ueC9oOHfKwXrYumG_JCkP.jpeg?height=500&amp;width=1000" decoding="async" data-nimg="fill" class="css-xah9so" style="position: absolute; inset: 0px; box-sizing: border-box; padding: 0px; border: none; margin: auto; display: block; width: 0px; height: 0px; min-width: 100%; max-width: 100%; min-height: 100%; max-height: 100%;">"
+<img src="https://images.mirror-media.xyz/publication-images/ueC9oOHfKwXrYumG_JCkP.jpeg?height=500&amp;width=1000" decoding="async" data-nimg="fill" class="css-xah9so" style="position: absolute; inset: 0px; box-sizing: border-box; padding: 0px; border: none; margin: auto; display: block; width: 0px; height: 0px; min-width: 100%; max-width: 100%; min-height: 100%; max-height: 100%;">
   <h2>🪙 What Is a BTCC Referral Code?</h2>
 
   <p>A <strong>BTCC referral code</strong>—also known as an <strong>invite code</strong>, <strong>promo code</strong>, or <strong>discount code</strong>—is a promotional tool that allows new users to claim <strong>exclusive bonuses</strong> when signing up on the BTCC exchange. These codes are designed to reward both new traders and those who refer them.</p>
